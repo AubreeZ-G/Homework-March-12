@@ -1,1 +1,2 @@
 # Homework-March-12
+This week I picked up an extra shift and did not have time to complete the homework. Also I tried to ask my TA if it was possible to get an extension on the homework or if I should just turn in what I have and then ask for a redo, but I did not get a response because I believe she is on vacation or just not available. I am turning this in incomplete and will be requesting a redo, since I have not heard back about the extension. SOrry.
